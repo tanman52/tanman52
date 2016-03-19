@@ -2,4 +2,4 @@
 Help people find the real me
 
 ## Looking for Tanner Mares' GitHub?
-He changed his username to [@tanman52](http://github.com/tanman52) because he was bored one day. You should go there instead!
+He changed his username back to [@tannermares](http://github.com/tannermares) because  hey couldn't get the twitter handle. You should go there instead!
